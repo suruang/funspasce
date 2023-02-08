@@ -1,1 +1,1 @@
-Developt by :Abdul Wahab
+developt BY: ABDUL WAHAB
